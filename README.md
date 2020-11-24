@@ -1,2 +1,2 @@
 # movie
-korean movies not included. sorry
+We dont sell k-drama. Sorry.
